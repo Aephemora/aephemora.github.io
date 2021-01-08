@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Breaking into Rainbows
+title: Chapter 1
 published: true
 ---
 
