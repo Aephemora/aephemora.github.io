@@ -5,7 +5,7 @@ permalink: /about/
 published: true
 ---
 
-I want to know about you!
+I like to sing songs:  you can listen to some [here](https://soundcloud.com/user-128232347/sets/now-is-not-the-time-for-sleeping)
 
 ### More Information
 
