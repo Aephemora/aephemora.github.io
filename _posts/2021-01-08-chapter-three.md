@@ -1,5 +1,6 @@
 ---
 published: false
+layout: post
 ---
 ## Falling in love with falling apart
 
