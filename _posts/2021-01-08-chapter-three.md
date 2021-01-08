@@ -2,9 +2,9 @@
 published: true
 layout: post
 ---
-### Falling in love with falling apart
+### Falling in Love with Falling Apart
 
-#### Leeches can have a little blood sometimes and I will have a little company.
+#### Sometimes I let the leeches have a little blood because I love them.
 
 For so long you have run from that for which you most long.
 
@@ -38,19 +38,19 @@ Yes!  Stab the coals with all your destructive intent!  Splinter them into exp
 
 As pine is burning, oozing fragrant sappy smoke and feeding flames that turn our mushroom harvest into a meal prepared together, I feel I have fallen into the moment I had longed for before.  Longed for a life time.  Had but rarely fully realized.  The days appointed are meaningless.  The moments find you in their own time with their own whimsy.  
 
-The essence that moves in all things
-the life and the love that it brings
-look and see
+The essence that moves in all things.
+the life and the love that it brings.
+look and see.
 
 
 
 Myna bird all fluffed and goofy, talking to someone I don't see, perched on the baby bhaisi buffalo's head.  Baby bhaisi's jaw lazily gnawing on some grass, its mouth slowly moving in a wide circle, with no care for the proclamations from above.
-Old man walking around the village loop over and over all day
-sunflower seeds!  Sprouting in the past infloresence of their mother
+Old man walking around the village loop over and over all day.
+Sunflower seeds!  Sprouting in the past infloresence of their mother.
 
-The simal red silk cotton tree flowers fallen, resting on the ground now. From pre birth to glorious red eruptions their chronology unfurled
+The simal red silk cotton tree flowers fallen, resting on the ground now. From pre birth to glorious red eruptions their chronology unfurled.
 
-the song of the mustard seed separating into oil and cake: toriko mill sings a slow base "desare" and pitter pattery "ali kati kaanaa kae"  the laugh of Sunita.  Her beautiful smile that makes it so her eyes can't hide the joy she feels.  Carriyng the mustard seed in baskets on our backs.  Being a part of a group.  Walking together into town where the stares of people I don't know mean nothing because I belong now.
+The song of the mustard seed separating into oil and cake: toriko mill sings a slow base "desare" and pitter pattery "ali kati kaanaa kae".  The laugh of Sunita.  Her beautiful smile that makes it so her eyes can't hide the joy she feels.  Carrying the mustard seed in baskets on our backs.  Being a part of a group.  Walking together into town where the stares of people I don't know mean nothing because I belong now.
 
 The celestial waters of kaka bessiko khola river sparkling with the kisses from the sun; tickling my soul and carrying away all that clings to the edges of the present.  Playing in the water with bahini sister after we do the laundry.  Aamaa politely telling the man working nearby to go somewhere else maybe.  The long walk uphill back home.  Together.
 
@@ -66,11 +66,11 @@ Eleven months left.  Measurable accomplishments unknown, unmeasurable accomplis
 
 A little hide drum beats with sudden life for a second.  A traveling man will give you trinkets for your hair.  All the children run to trade for treasure!  Balloons and bracelets and pony tales!  With a neighbor who is being themself.  Wearing the color of the sky as it reaches for the sea.  Sharing in play and holding a moment of joy together.  Such power in these feelings that thoughts only in the present may reside.  The will to be anywhere else dissolved for a time.
 
-lost once again in a deep despair and rescued by the life of this place.  No one dances here they said.  But I wanted to so my bahini told the children and they organized the gathering and brought their moms.  I didn't think they were coming but they did.  My aamaa sang and danced because she knew it would make me happy.  And I hope it made her happy too.  Everyone gives so much.  I would have been lost still without them.
+Sunken once again into a deep despair and rescued by the life of this place.  No one dances here they said.  But I wanted to so my bahini told the children and they organized the gathering and brought their mothers.  I didn't think they were coming but they did.  My aamaa sang and danced because she knew it would make me happy.  And I hope it made her happy too.  Everyone gives so much.  I would have been lost still without them.
 
-Its like this because you asked to see the truth.  But first you have to learn the truth about yourself.  Its painful to rip apart everything you've built up to protect your heart from harm.  Probably more painful now then just feeling the pain initially instead of letting it stain your insides charcoal like the smoke plastered kitchen ceiling.  Seeing and accepting your truth, looking into the hearts of your demons is like scrubbing the char off your tender flesh to see what has been lying underneath the whole time.
+It's like this because you asked to see the truth.  But first you have to learn the truth about yourself.  It's painful to rip apart everything you've built up to protect your heart from harm.  Probably more painful now then just feeling the pain initially instead of letting it stain your insides charcoal like the smoke plastered kitchen ceiling.  Seeing and accepting your truth, looking into the hearts of your demons is like scrubbing the char off your tender flesh to see what has been lying underneath the whole time.
 
-love is losing yourself.  It is letting go completely and giving up.  Seeing how the ego becomes greedy sometimes when it doesn't feel loved.  Would I have learned this if i had stayed?  I don't know.  It would have been a lot different.  I wish I hadn't been so selfish all this time.  I feel so grateful for this clarity.  Please let it stay through the hard times.
+Love is losing yourself.  It is letting go completely and giving up.  Seeing how the ego becomes greedy sometimes when it doesn't feel loved.  Would I have learned this if i had stayed?  I don't know.  It would have been a lot different.  I wish I hadn't been so selfish all this time.  I feel so grateful for this clarity.  Please let it stay through the hard times.
 
 Hearing the pigeons fly over my head - their wings cutting through the air.  Blue and black nail polish.  Letting the kids paint my fingernails and toes.  It looks terrible but I love it.  Nirgali, Anita, Acriti, Mausam and even Sarita being goofy and free.  Sitting with Pinky in the sunlight and sharing sounds of affection.  Thankful for the love people give.  Thankful for the way Kobita looks at me.  Like she wants me to know that she loves me.
 
