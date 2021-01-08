@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chapter 1
+title: Chapter One
 published: true
 ---
 
