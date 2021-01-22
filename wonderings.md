@@ -1,4 +1,4 @@
-### Initiation
+
 
 First it is breaking through illusions.  What I think I want the most doesn't exist.  Perfection is not real.  I will never be perfect and will never find it in anyone else and that is so beautiful.  We are always changing, failing, being; learning how to be ourselves.  Driving through a sentient forest with moss clinging to every surface and misty clouds floating over the mountains that sit cross legged next to the water I am in a celestial realm.  Above the past and the future; only here now in this magic.  Listening to the movement of truth in melody, harmony, dissonence I feel like we are god.  For now we are without home together, finding a place to be with everything, to sing with everything for a moment.  I am reminded that no one knows everything, not even me.  I saw my whole self for the first time.  Every part, every shadow in every crevice, every shining light and felt love for this thing that I am.  Forgiveness for ignoring these parts for so long.  Gratefulness for this rare glimpse.  All feelings fabulous, glorious in their formidable expressings; burning, glowing, dying.  Exploding into chaos.   
 
